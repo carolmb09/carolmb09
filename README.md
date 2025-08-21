@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 
 
 
--  Infelizmente ela foi embora 💔💔
--  Mas espero q ela volta 🩵🩵
+-  desværre gik hun 💔💔
+-  men jeg håber hun kommer tilbage 🩵🩵
